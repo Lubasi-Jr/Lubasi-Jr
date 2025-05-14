@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on **Backend Dev Projects**
 - 🤔 I’m looking for help with learning **Android Development** efficiently
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: *I know the winner of every Champions League season this decade*
+- ⚡ Fun fact: *I know the winner of every Champions League season this century*
 
 
 ## 🌐 Socials:
